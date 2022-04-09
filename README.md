@@ -13,4 +13,4 @@ English Version [^3] :
 
 [^2]: *Author of*: «Education and the Future» and «Philosophy of Education» (1967), «Education and Politics»(1969), «Trial to the School» (Joint work with Helba Forcade and Ivan Illich, 1972), «Education for a Social Change”, joint work with Paulo Freire; «The Argentine project. From Education to Politics» (1973), «La Argentina Triangular» (1975) «Open Education» (1983), «Educación y País» (1988), «Because I need Light to continue» (1995), «¿ Why did Clara J. Armstrong come to Argentina?» (1996), «Tangology» (2001), «Methodology of the Country Project» (2002), «Oswego in Argentine normalism» (2003) among countless other works, writings and journalistic articles.
 
-[^3]: *Cirigliano, Gustavo F. J.* “Fable of the Roasted Pigs.” The Phi Delta Kappan, vol. 42, no. 2, 1960, pp. 52–54, [http://www.jstor.org/stable/20342499](http://www.jstor.org/stable/20342499). Accessed 9 Apr. 2022.
+[^3]: [*Cirigliano, Gustavo F. J.*](http://www.jstor.org/stable/20342499) “Fable of the Roasted Pigs.” The Phi Delta Kappan, vol. 42, no. 2, 1960, pp. 52–54. Accessed 9 Apr. 2022.
